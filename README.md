@@ -26,7 +26,6 @@
 - Hacking
 - Warez
 - Non-commercial drugs
-- Erotic 🔞
 - Hard erotic candy 
 - Any
 - Erotic Jailbait  
@@ -200,22 +199,6 @@
 | 165 | Lolicore و Speedcore Music | 💥[Link](http://lolicore75rq3tm5.onion/) | 166 | E-books | 💥[Link](http://xfmro77i3lixucja.onion/) |
 | 167 | lol 20th Century Western Recordings & Scores | 💥[Link](http://vt27twhtksyvjrky.onion/) | 168 | Pony in Noisebridge | 💥[Link](http://2ygbaoezjdmacnro.onion/) |
 | 169 | Imperial Trantor Library | 💥[Link](http://xfmro77i3lixucja.onion/) | 170 | Jotunbane Reading Club | 💥[Link](http://c3jemx2ube5v5zpg.onion/) |
-
-<br>
-
-## Non-commercial drugs
-### ⚠️ Call me!
-
-<br>
-
-## Erotic 🔞
-
-| | Website  |   | | Website  |   |
-|-----------|-----------|--------------------|-----------|-----------|--------------------|
-| 171 | SharePass<br> Community subscription password | 💥[Link](http://tklxxs3rdzdjppnl.onion/sharepass/) | 172 | Published girls<br> some good model photos | 💥[Link](http://k4jmdeccpnsfe43c.onion/) |
-| 173 | Gallery - Matt-Art, FTVX etc.<br> Collection | 💥[Link](http://54dgeda4ik6iypui.onion/) | 174 | Pink Meth (Mirror) | 💥[Link](http://pinkmethuylnenlz.onion/) |
-| 175 | Klixen | 💥[Link](http://2fqgjzbb2h7yevom.onion/klixen/) | 176 | EroDir<br> Lots and lots of conversations | 💥[Link](http://orsxvca7glswueo7.onion/) |
-| 177 | VOR-COM | 💥[Link](http://mmgh3rqeswrlgzdr.onion/) |  |  |  |
 
 <br>
 
